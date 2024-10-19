@@ -1,0 +1,2 @@
+# Ambatukam
+Gampang aja 🗿
